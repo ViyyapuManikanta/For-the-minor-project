@@ -1,1 +1,0 @@
-# For-the-minor-project
